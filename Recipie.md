@@ -1,0 +1,1 @@
+Apply sauce cheese and veggies on a pizza base then bake at 400 degrees for 25 minutes
